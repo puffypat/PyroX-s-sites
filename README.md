@@ -1,3 +1,3 @@
 # PyroX-s-sites
-unblocked sites google pages sites
-this repository comes with taco proxy
+unblocked websites for school NOT OWNED OR MADE BY ME
+can range from game sites to movie sites
